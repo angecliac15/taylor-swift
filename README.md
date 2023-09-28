@@ -4,10 +4,12 @@
 ### Some facts about Taylor:
 + Her birthday is December 13, 1989
 + She has done 6 concert tours:
-+   blh
-  - Fearless Tour (2009-2010)
-  - Speak Now World Tour (2011-2012)
-  - The RedTour (2013-2014)
-  - The 1989 World Tour (2015)
-  - Reputation Stadium Tour (2018)
-  - The Eras Tour (2023-2024)
++   Fearless Tour (2009-2010)
++   Speak Now World Tour (2011-2012)
++   The RedTour (2013-2014)
++   The 1989 World Tour (2015)
++   Reputation Stadium Tour (2018)
++   The Eras Tour (2023-2024)
++ Taylor was originally a country music artist but made the jump to pop music when releasing her album "1989"
++ Swift is in the process of re-releasing her first 6 albums, renaming them their original name with "(Taylor's Version)" added onto the end, so she can completely own all of her music.
++ Taylor Swift currently has 13 albums out:
