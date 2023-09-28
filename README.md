@@ -1,7 +1,7 @@
 # **TAYLOR SWIFT!!!**
 [*Taylor Alison Swift*](https://www.taylorswift.com/) is an American singer-songwriter. She is recognized as a huge influence on the music industry and a pop icon. 
 
-![Taylor Swift at her Eras Tour in  pink outfit looking into the distance](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.hollywoodreporter.com%2Fnews%2Fmusic-news%2Ftaylor-swift-reveals-speak-now-re-recorded-album-1235481366%2F&psig=AOvVaw12apj5uDbsppnTNbhQMv7P&ust=1695973377007000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCOjGnLbnzIEDFQAAAAAdAAAAABAE)
+![Taylor Swift at her Eras Tour in a blue and gold outfit smiling](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.thenationalnews.com%2Farts-culture%2Fmusic-stage%2F2023%2F07%2F07%2Ftaylor-swift-speak-now-release%2F&psig=AOvVaw12apj5uDbsppnTNbhQMv7P&ust=1695973377007000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCOjGnLbnzIEDFQAAAAAdAAAAABAU)
 
 ### Some facts about Taylor:
 + Her birthday is December 13, 1989
