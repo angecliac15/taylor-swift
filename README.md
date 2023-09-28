@@ -1,7 +1,7 @@
 # **TAYLOR SWIFT!!!**
 [*Taylor Alison Swift*](https://www.taylorswift.com/) is an American singer-songwriter. She is recognized as a huge influence on the music industry and a pop icon. 
 
-<img src="https://thenational-the-national-prod.cdn.arcpublishing.com/resizer/ebaqt8bkPMdjsDcBUCpUj12aYWo=/800x0/filters:format(jpg):quality(70):focal(1360x675:1370x685)/cloudfront-eu-central-1.images.arcpublishing.com/thenational/FBNNA3MZSCE36POPRIJIYMIGNE.jpg" width="100" height="75">
+<img src="https://thenational-the-national-prod.cdn.arcpublishing.com/resizer/ebaqt8bkPMdjsDcBUCpUj12aYWo=/800x0/filters:format(jpg):quality(70):focal(1360x675:1370x685)/cloudfront-eu-central-1.images.arcpublishing.com/thenational/FBNNA3MZSCE36POPRIJIYMIGNE.jpg" width="320" height="240">
 
 ### Some facts about Taylor:
 + Her birthday is December 13, 1989
