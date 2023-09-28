@@ -4,6 +4,7 @@
 ### Some facts about Taylor:
 + Her birthday is December 13, 1989
 + She has done 6 concert tours:
++   blh
   - Fearless Tour (2009-2010)
   - Speak Now World Tour (2011-2012)
   - The RedTour (2013-2014)
