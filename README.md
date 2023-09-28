@@ -1,6 +1,8 @@
 # **TAYLOR SWIFT!!!**
 [*Taylor Alison Swift*](https://www.taylorswift.com/) is an American singer-songwriter. She is recognized as a huge influence on the music industry and a pop icon. 
 
+![Taylor Swift at her Eras Tour in  pink outfit looking into the distance](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.hollywoodreporter.com%2Fnews%2Fmusic-news%2Ftaylor-swift-reveals-speak-now-re-recorded-album-1235481366%2F&psig=AOvVaw12apj5uDbsppnTNbhQMv7P&ust=1695973377007000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCOjGnLbnzIEDFQAAAAAdAAAAABAE)
+
 ### Some facts about Taylor:
 + Her birthday is December 13, 1989
 + She has done 6 concert tours: 
@@ -15,16 +17,16 @@
 + Swift is in the process of re-releasing her first 6 albums, renaming them their original name with "(Taylor's Version)" added onto the end, so she can completely own all of her music.
 + Taylor Swift currently has 13 albums out:
   + Taylor Swift (Self-Titled/Debut) - 2006
-  + Fearless - 2008
-  + Speak Now - 2010
-  + Red - 2012
-  + 1989 - 2014
-  + Reputation - 2017
-  + Lover - 2019
-  + Folklore - 2020
-  + Evermore - 2020
-  + Fearless (Taylor's Version) - 2021
-  + Red (Taylor's Version) - 2021
-  + Midnights - 2022
-  + Speak Now (Taylor's Version) - 2023
-  + *1989 (TAYLOR'S VERSION) IS OUT ON OCTOBER 27TH, 2023
+  + Fearless - *2008*
+  + Speak Now - *2010*
+  + Red - *2012*
+  + 1989 - *2014*
+  + Reputation - *2017*
+  + Lover - *2019*
+  + Folklore - *2020*
+  + Evermore - *2020*
+  + Fearless (Taylor's Version) - *2021*
+  + Red (Taylor's Version) - *2021*
+  + Midnights - *2022*
+  + Speak Now (Taylor's Version) - *2023*
+  + *1989 (TAYLOR'S VERSION) IS OUT ON *OCTOBER 27TH, 2023*
