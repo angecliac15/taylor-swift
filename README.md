@@ -16,6 +16,7 @@
 + Taylor Swift currently has 13 albums out:
   + Taylor Swift (Self-Titled/Debut)
   + Fearless
+  + Fearless
   + Speak Now
   + Red
   + 1989
